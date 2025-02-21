@@ -1,0 +1,1 @@
+# QSSA2024-Qlik-Sense-SaaS-Administrator-Endorsement-Exam-Questions
